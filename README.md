@@ -17,7 +17,7 @@ of any political philosophy to the left of Conservatives or Libertarians.
   Complete disregard of the traditions of the majority, either by direct insult,
   afflicting violence or call for violence against the majority, destruction of
   the mojority's property (with the exclusion of intellectual property for free
-  speech), or attempts of defaming the majority by using false accusations
+  speech), or attempts of defaming the majority by using false accusations.
 2. The "New Way of Thinking"  
   Heavy promotion of nuanced things for the sake of trendiness or hype, with the lack
   of evidence, and to force it upon the project space without concern or respect
@@ -37,7 +37,7 @@ of any political philosophy to the left of Conservatives or Libertarians.
   Using Political Correctness to supress freedom of, and prohibit dialog between groups
   of people, to ban so called hate-facts outright, and to prevent a fair and balanced
   conflict resolution scheme, allowing those who introduced a preceived winning
-  strategy, and when all else fails, dig dirt for mob violence and other misconducts
+  strategy, and when all else fails, dig dirt for mob violence and other misconducts.
 6. The "Works and Walk"  
   Destrution of a meritocratic, technocratic project management structure, in order
   for those who were duped into minority victim complexes to riot against the project,
@@ -52,7 +52,7 @@ of any political philosophy to the left of Conservatives or Libertarians.
   Promotion of the dissolution of the police and military which enforces the law,
   the traditions of the majority, honesty in the sciences and politics, peace and
   harmony throughtout family and culture, and the discouragement of reformation of
-  those who does not abide by these rules, encouraging violence and mayhem
+  those who does not abide by these rules, encouraging violence and mayhem.
 
 If you suspect or are subjected to criminal behavior within this project space,
 first notify the appropriate authorities; then, if you wish, you may notify the
